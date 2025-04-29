@@ -1,1 +1,1 @@
-"Ayam"
+"Ayam Enak"
